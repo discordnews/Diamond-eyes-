@@ -1,4 +1,4 @@
-# Diamond-eyes-
+# Diamond eyes
 💎👀 Diamond eyes returning!?
 
 There has been confermation that a known discord hacker has been returned called diamond eyes!
