@@ -29,5 +29,4 @@ If you do indeed get a friend request, do NOT accept it! it will most likly do s
 
 That was discord news for today! if we know more about this person we will updates you!
 
-![aardolie90 - Discord 14-3-2022 20_04_24 (2)](https://user-images.githubusercontent.com/101594862/158243203-0acd0829-7944-42f0-8fd9-49d0e336b3ab.png)
 ![aardolie90 - Discord 14-3-2022 20_04_24 (3)](https://user-images.githubusercontent.com/101594862/158243431-609c210d-4ba0-47b0-9208-95900f4f973b.png)
